@@ -1,7 +1,4 @@
 
-Below, we provide some recent publications.   
-By clicking on "Direct link", you are redirected to a .pdf version of that specific paper.   
-Alternatively, you can also opt to see the paper online by clicking on "link to the online version".
 
 ## Preprints
 
